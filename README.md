@@ -1,5 +1,8 @@
 # Top Dispensaries in Orange County, CA 
 List of the best weed delivery, cannabis delivery &amp; dispensary services in Orange County, CA
+Websites optimized for iOS, Android and Desktop
+
+Find top quality weed, cannabis, flower, vapes, concentrates, cbd & more
 
 - [Orange County Weed Delivery & Cannabis Delivery](https://www.capitalcannabisdirect.com/cannabis-delivery-oc/)
 - [Weed Delivery & Cannabis Delivery near Aliso Viejo, CA](https://www.capitalcannabisdirect.com/cannabis-delivery-in-aliso-viejo/)
